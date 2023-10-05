@@ -1,1 +1,1 @@
-Please go to planetyt.github.io
+Please go to planetyt.github.io to use website
